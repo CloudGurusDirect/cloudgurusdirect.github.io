@@ -1,1 +1,0 @@
-# cloudgurusdirect.github.io
